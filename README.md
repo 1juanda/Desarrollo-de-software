@@ -1,1 +1,2 @@
-# Desarrollo-de-software
+JUAN DAVID CORONADO DUSSAN 
+JOHANA PAOLA RINCON 
